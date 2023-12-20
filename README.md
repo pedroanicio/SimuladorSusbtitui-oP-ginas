@@ -1,0 +1,1 @@
+# SimuladorSusbtitui-oP-ginas
